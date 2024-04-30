@@ -1,1 +1,0 @@
-# Cooking-Problem-Fuzzy-System
